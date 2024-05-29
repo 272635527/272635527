@@ -2,7 +2,7 @@
 - 👀 I’m interested in robotics
 - 🌱 I’m currently learning robots smart cutebot
 - 💞️ I’m looking to collaborate on classes
-- 📫 How to reach me @aoki.nnora@inscastellar.cat
+- 📫 How to reach me @aoki.nora@inscastellar.cat
 - 😄 Pronouns: happy
 - ⚡ Fun fact: 🤪
 
